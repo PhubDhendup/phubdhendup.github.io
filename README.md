@@ -1,2 +1,2 @@
 # phubdhendup.github.io
-Forestry and conservation professional with 16+ years of experience in sustainable resource allocation, wildlife management, habitat restoration, and ecological planning in Bhutan, including Gelephu Mindfulness City landscape development.
+Forestry and conservation professional with 16+ years of experience in sustainable resource allocation, law enforcement, wildlife management, habitat restoration, and ecological planning in Bhutan, including Gelephu Mindfulness City landscape development.
